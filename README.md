@@ -1,4 +1,4 @@
-![](https://postimg.cc/sMrqrWxz)
+![](https://i.postimg.cc/FHd40gQY/photo-2024-09-07-13-29-32-1.jpg)
 
 # О себе
 
